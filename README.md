@@ -23,9 +23,9 @@
 
 点击访问：<a href="https://cg08-1.pages.dev/">海角吃瓜</a>
 
-点击访问：<a href="https://hls-59.pages.dev/">黑料社</a>
+点击访问：<a href="https://aw7-11.pages.dev/">暗网TV官网</a>
 
-点击访问：<a href="https://hl420.pages.dev/">热门事件</a>
+点击访问：<a href="https://hls-15.pages.dev/">黑料社</a>
 
 点击访问：<a href="https://pi789.pages.dev/">暗网禁区</a>
 
